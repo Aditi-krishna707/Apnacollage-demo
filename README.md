@@ -1,5 +1,5 @@
 # Apnacollage-demo
 piu piu
-Author - Aditi krishna
+Author - pinky
 <br/>
 work-zdfgvbhjmk
